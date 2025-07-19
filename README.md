@@ -1,1 +1,0 @@
-# ikado-arabic1
